@@ -1,5 +1,5 @@
 # WeGotchaBK
-#About WeGotchaBK
+About WeGotchaBK
 
   WeGotchaBK was founded on a simple belief: reliable transportation should never feel like a luxury. It should be accessible, affordable, and designed around the real lives of the people who depend on it every day.Founded by **Jermaine Smith**, a Georgia-raised entrepreneur who recently relocated to New York, WeGotchaBK was shaped by firsthand experience. Like many residents, students, and healthcare workers, Jermaine quickly encountered the daily realities of congestion, long delays, overcrowding, and rising transportation costs. Navigating the city revealed just how difficult it can be to move efficiently through essential corridors — especially when time, work, and family responsibilities are on the line. Those experiences became the foundation for building something better.
   
